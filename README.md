@@ -1,1 +1,1 @@
-# Laurence All assignment here demonstrating for the employment by the company, DO NOT COPY IT #
+# All of the presentations here are for corporate viewing, DO NOT COPY IT #
